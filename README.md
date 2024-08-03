@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Adnanali0907
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Haldia Institute of Technology
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m a Computer Science Student
 - 📫 How to reach me 
 - 😄 Pronouns: he/his
 
