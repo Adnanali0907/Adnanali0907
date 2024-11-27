@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Adnanali0907
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning at Haldia Institute of Technology
+- 🌱 I Recently Completed my B.Tech from Haldia Institute of Technology
 - 💞️ I’m a Computer Science and Engineering Graduate
 - 📫 How to reach me https://linkedin.com/in/mdadnanali0907
 - 😄 Pronouns: he/him
